@@ -1,4 +1,4 @@
-### Hi there, I'm Arsenii👋
+### Hi there, I'm Arsny👋
 
 > 💬 "Some of the best programming is done on paper, really. Putting it into the computer is just a minor detail"
 
